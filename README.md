@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nctufts
+- 👋 Hi, I’m Nick
 - 👀 I’m interested in the future of crypto and decentrilization. 
 - 🌱 I’m currently learning about crypto's potential along with decentrilization, and the unlimited possibilities it has to offer in a virtual setting
 - 💞️ I’m looking to collaborate on ...
